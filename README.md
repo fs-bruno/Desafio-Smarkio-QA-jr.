@@ -1,0 +1,1 @@
+# Desafio-Smarkio-QA-jr.
